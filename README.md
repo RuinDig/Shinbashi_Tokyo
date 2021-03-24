@@ -1,5 +1,5 @@
 # Shinbashi_Tokyo
-東京都港区新橋、ニュー新橋ビル、新橋駅前広場
+東京都港区新橋、ニュー新橋ビル、新橋駅前SL広場
 
 ![Shinbashi_Tokyo_01](https://user-images.githubusercontent.com/20723919/112269970-6fa8b600-8cbc-11eb-9b38-0175872480bb.JPG)
 
