@@ -55,22 +55,44 @@
 
 ![Shinbashi_Tokyo_21](https://user-images.githubusercontent.com/20723919/112275346-ddf07700-8cc2-11eb-8026-e7be2b116628.jpg)
 
+ニュー新橋ビル：休業日のむさしや
+
 ![Shinbashi_Tokyo_22](https://user-images.githubusercontent.com/20723919/112275354-e052d100-8cc2-11eb-9d88-a0e376de0265.jpg)
+
+新橋駅前ビル：とんかつまるや 新橋駅前本店のロースカツ定食
 
 ![Shinbashi_Tokyo_23](https://user-images.githubusercontent.com/20723919/112275359-e052d100-8cc2-11eb-8ad8-896abf70a8b8.jpg)
 
+新橋駅前ビル：とんかつまるや 新橋駅前本店のロースカツの断面
+
 ![Shinbashi_Tokyo_24](https://user-images.githubusercontent.com/20723919/112275362-e0eb6780-8cc2-11eb-8638-e802b8990361.jpg)
+
+新橋駅前ビル：なぜ蕎麦にラー油を入れるのか。新橋店の肉そば
 
 ![Shinbashi_Tokyo_25](https://user-images.githubusercontent.com/20723919/112275365-e0eb6780-8cc2-11eb-87b8-927c985c4f07.jpg)
 
+新橋駅前ビル1号館の地下1階
+
 ![Shinbashi_Tokyo_26](https://user-images.githubusercontent.com/20723919/112275367-e183fe00-8cc2-11eb-8aaf-1c6868a5fee9.jpg)
+
+新橋駅前ビル1号館の地下1階：営団地下鉄(現・東京メトロ)の文字
 
 ![Shinbashi_Tokyo_27](https://user-images.githubusercontent.com/20723919/112275369-e21c9480-8cc2-11eb-855d-bd86b8a25bce.jpg)
 
+新橋駅前ビル1号館の地下1階：AED搭載の自動販売機
+
 ![Shinbashi_Tokyo_28](https://user-images.githubusercontent.com/20723919/112275371-e21c9480-8cc2-11eb-96a7-2e183c4bad54.jpg)
+
+新橋駅前ビル1号館の地下1階：災害救援ベンダーと防災用具入れ
 
 ![Shinbashi_Tokyo_29](https://user-images.githubusercontent.com/20723919/112275377-e2b52b00-8cc2-11eb-9643-c8358bd99d0d.jpg)
 
+新橋駅前ビル1号館の地下1階：チップ制トイレ
+
 ![Shinbashi_Tokyo_30](https://user-images.githubusercontent.com/20723919/112275379-e2b52b00-8cc2-11eb-9014-0dfdb76ecbb4.jpg)
 
+新橋駅前ビル1号館のフロアガイド：地下1階と1階を繋ぐ階段でのフロアガイド
+
 ![Shinbashi_Tokyo_31](https://user-images.githubusercontent.com/20723919/112275380-e34dc180-8cc2-11eb-943c-4d963adbacc4.jpg)
+
+新橋駅前ビル1号館のフロアガイド
