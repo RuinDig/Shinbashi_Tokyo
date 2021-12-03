@@ -73,6 +73,8 @@
 
 ![Shinbashi_Tokyo_20](https://user-images.githubusercontent.com/20723919/112270093-8a7b2a80-8cbc-11eb-9821-6fc7e1f57cad.JPG)
 
+新橋駅前に建つSL、蒸気機関車のC11 292
+
 ![Shinbashi_Tokyo_21](https://user-images.githubusercontent.com/20723919/112275346-ddf07700-8cc2-11eb-8026-e7be2b116628.jpg)
 
 ニュー新橋ビル：休業日のむさしや
